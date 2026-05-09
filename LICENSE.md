@@ -1,4 +1,4 @@
-
+Experience aura ascension like never before with smart aura ascension Script, the #1 Script. Includes auto-upgrade and instant win for unbeatable
 
 
 
